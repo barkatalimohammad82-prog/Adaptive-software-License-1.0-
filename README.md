@@ -1,0 +1,1 @@
+# Adaptive-software-License-1.0-
